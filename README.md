@@ -10,9 +10,10 @@
 
 ![6c6e51ba](https://github.com/user-attachments/assets/0dcbf0f3-2d7e-479c-828c-52cc9d47e6ff) OFTEN TIMES I HANG OUT IN THE ROBLOX AREA, SOMETIMES DANDYS WORLD, OCCASIONALLY HOMESTUCK. 
 
-![f26db027](https://github.com/user-attachments/assets/6dddb2ae-ced1-4b71-a1c2-dc83463d63c9) I MOSTLY WEAR MY PERSONAL SKIN OR A FEFERI ONE. ALSO A SHEDLETSKY ONE BUT I'M WORKING ON IT.
+![f26db027](https://github.com/user-attachments/assets/6dddb2ae-ced1-4b71-a1c2-dc83463d63c9) I MOSTLY WEAR MY PERSONAL SKIN OR FEFERI/COSMO. ALSO A SHEDLETSKY ONE BUT I'M WORKING ON IT.
 
-![pony-town-feferi-boop-lie-blinking-padded-4x](https://github.com/user-attachments/assets/edace1b7-0f74-44e9-903e-5820473f7a1f) ![pony-town-✦ ME ♋ SYS-AFK-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/7a7de400-2a78-43d0-bec7-67814fa8c3ed)
+![pony-town-feferi-boop-lie-blinking-padded-4x](https://github.com/user-attachments/assets/edace1b7-0f74-44e9-903e-5820473f7a1f) ![pony-town-✦ ME ♋ SYS-AFK-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/7a7de400-2a78-43d0-bec7-67814fa8c3ed)![pony-town-✦ ︵︵ 🍫 - cosmo-yawn-blinking-padded-4x](https://github.com/user-attachments/assets/f71af056-45eb-4d42-b314-332ddf15ac84)
+
 
 ![0bc35d2a](https://github.com/user-attachments/assets/b60877ed-8b82-4bd6-91e4-4818eb053628) MY INTERESTS ![0bc35d2a](https://github.com/user-attachments/assets/b60877ed-8b82-4bd6-91e4-4818eb053628) ![c635a734](https://github.com/user-attachments/assets/94f1866c-a5a7-4b11-af06-35a2360bdcea)
 
