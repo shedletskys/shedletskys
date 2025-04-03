@@ -17,7 +17,7 @@
 
 ![0bc35d2a](https://github.com/user-attachments/assets/b60877ed-8b82-4bd6-91e4-4818eb053628) MY INTERESTS ![0bc35d2a](https://github.com/user-attachments/assets/b60877ed-8b82-4bd6-91e4-4818eb053628) ![c635a734](https://github.com/user-attachments/assets/94f1866c-a5a7-4b11-af06-35a2360bdcea)
 
-![f26db027](https://github.com/user-attachments/assets/6dddb2ae-ced1-4b71-a1c2-dc83463d63c9) I LOVE OLD ROBLOX AND IT'S MODERATORS. SHEDLETSKY (AS A ROBLOX FIGURE, NOT THE REAL PERSON) IS MY FAVORITE, GO FIGURE. I ALSO LIKE CURRENT ROBLOX. I LIKE PLAYING ZOMBIE ATTACK, FORSAKEN, AND DANDY'S WORLD. I LIKE THE COMIC OBJECTIFIED AND OBJECT SHOWS HFJONE & LOTS*N ![6c6e51ba](https://github.com/user-attachments/assets/0dcbf0f3-2d7e-479c-828c-52cc9d47e6ff) 
+![f26db027](https://github.com/user-attachments/assets/6dddb2ae-ced1-4b71-a1c2-dc83463d63c9) I LOVE OLD ROBLOX AND ITS MODERATORS. SHEDLETSKY (AS A ROBLOX FIGURE, NOT THE REAL PERSON) IS MY FAVORITE, GO FIGURE. I ALSO LIKE CURRENT ROBLOX. I LIKE PLAYING ZOMBIE ATTACK, FORSAKEN, AND DANDY'S WORLD. I LIKE THE COMIC OBJECTIFIED AND OBJECT SHOWS HFJONE & LOTS*N ![6c6e51ba](https://github.com/user-attachments/assets/0dcbf0f3-2d7e-479c-828c-52cc9d47e6ff) 
 
 ![H](https://i.postimg.cc/1tD4CSXB/IMG-1699.jpg)
 
