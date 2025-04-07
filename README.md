@@ -1,7 +1,3 @@
-JUNO I HATE YOU. ACCOUNT GET HACKED GET HACKED. -June
-
-"tell people to not int with you or put a dni on your pony so i  stop freaking out.  tell him also too learn how to reply to messages /j"  -HE WANTS TO STAY ANONYMOUS I GUESS SO FIGURE IT  OUT YOURSELF
-
 ![0bc35d2a](https://github.com/user-attachments/assets/b60877ed-8b82-4bd6-91e4-4818eb053628) THE BASICS ![0bc35d2a](https://github.com/user-attachments/assets/b60877ed-8b82-4bd6-91e4-4818eb053628) ![c635a734](https://github.com/user-attachments/assets/94f1866c-a5a7-4b11-af06-35a2360bdcea)
 
 ![GnNu9QQacAAQfH5](https://github.com/user-attachments/assets/d77cba73-261c-4644-bff9-19c9060e000b)
